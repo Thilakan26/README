@@ -52,8 +52,9 @@ My long-term goal is to work in the **electronics and semiconductor industry** a
 
 ### 🤝 Connect With Me
 
-* 💼 [LinkedIn](YOUR_LINKEDIN_URL)
-* 📧 Email: YOUR_EMAIL
+* 💼 [LinkedIn] https://www.linkedin.com/in/thilakan-s
+421a75436?utm_source=share_via&utm_content=profile&utm_medium=member_android
+* 📧 Email: thilakan26.nova@gamil.com
 
 ---
 
